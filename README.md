@@ -9,18 +9,15 @@
 
 
  <p align="center">
-ও░ 𝐀𝐜𝐭𝐢𝐨𝐧 𝐖𝐢𝐧𝐭𝐞𝐫 𝐉𝐨𝐮𝐫𝐧𝐞𝐲 - 𝐛𝐲 𝐍𝐞𝐫𝐨'𝐬 𝐃𝐚𝐲 𝐚𝐭 𝐃𝐢𝐬𝐧𝐞𝐲𝐥𝐚𝐧𝐝 ଘ•
+ও░ "Malicious software detected! O-oh wait, t-that's me 𝐋𝐎𝐋." ଘ•
 </p>
 
 <p align="center">
 ≻───── ⋆✩⋆ ─────≺
 </p>
 
-![175191200149065985498857445209](https://github.com/user-attachments/assets/473f09f0-be37-42dd-8105-f37a6d5dbc12)
+![1754898304603122792796690872469](https://github.com/user-attachments/assets/9c725265-fffe-4b6d-a219-017d2ef6dc17)
 
-<p align="center">
-𝐛𝐲 @wiitchingh0ur 𝐨𝐧 𝐗
-</p>
 
 <p align="center">
 ──────⊹⊱✫⊰⊹──────
