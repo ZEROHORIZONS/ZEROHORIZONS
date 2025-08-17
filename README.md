@@ -23,7 +23,7 @@
 ──────⊹⊱✫⊰⊹──────
 </p>
 
-[Rentry](https://rentry.co/MyFedoraAndHisFedora) ✦ [pronouns.cc](https://pronouns.cc/@Gr13F3R-P1LL3D)  ✦ [personal dni](https://rentry.co/q78ggnub) ✦ [Ata](https://bulletv4nity-2000.atabook.org/)
+[Rentry](https://rentry.co/MyFedoraAndHisFedora) ✦ [pronouns.cc](https://pronouns.cc/@RADIANT_DAY)  ✦ [personal dni](https://rentry.co/q78ggnub) ✦ [Ata](https://bulletv4nity-2000.atabook.org/)
 
 <p align="center">
 𝐑𝐞𝐚𝐝 𝐫𝐞𝐧𝐭𝐫𝐲(𝐬) 𝐛𝐲𝐢
