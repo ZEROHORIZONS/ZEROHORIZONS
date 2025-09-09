@@ -9,7 +9,7 @@
 
 
  <p align="center">
-ও░ "Malicious software detected! O-oh wait, t-that's me 𝐋𝐎𝐋." ଘ•
+ও░ "𝐂𝐎𝐌𝐏𝐋𝐄𝐓𝐄 𝐌𝐘 𝐂𝐎𝐃𝐄." ଘ•
 </p>
 
 <p align="center">
