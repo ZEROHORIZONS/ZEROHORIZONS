@@ -12,8 +12,6 @@
 #NO.𝟏 𝐂𝐎𝐍𝐓𝐑𝐀𝐂𝐓𝐄𝐄 𝐅𝐎𝐑𝐒𝐀𝐊𝐄𝐍 𝐅𝐀𝐍💛🖤
 </p>
 
-! [Profile view counter on Github](https://komarev.com/ghpvc,) 
-
 <p align="center">
 ________
 </p>
