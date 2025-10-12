@@ -4,9 +4,10 @@
 
 <p align="center">
   ■□■□■□■□■■□■□■□■□■■□■□■□■□■
-</p>
+</p>   
 
-! [Profile counter on GitHub](https://komarev.com/ghpvc) 
+
+![](https://komarev.com/ghpvc/?username=ZEROHORIZONS&color=yellow&label=IN+DEBT)
 
  <p align="center">
 #NO.𝟏 𝐂𝐎𝐍𝐓𝐑𝐀𝐂𝐓𝐄𝐄 𝐅𝐎𝐑𝐒𝐀𝐊𝐄𝐍 𝐅𝐀𝐍💛🖤
