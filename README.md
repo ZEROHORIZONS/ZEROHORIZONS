@@ -1,13 +1,6 @@
-
-
-
-
-<p align="center">
-  ■□■□■□■□■■□■□■□■□■■□■□■□■□■
-</p>   
-
-
+&nbsp;<div align="center">
 ![](https://komarev.com/ghpvc/?username=ZEROHORIZONS&color=yellow&label=IN+DEBT)
+</div>
 
  <p align="center">
 #NO.𝟏 𝐂𝐎𝐍𝐓𝐑𝐀𝐂𝐓𝐄𝐄 𝐅𝐎𝐑𝐒𝐀𝐊𝐄𝐍 𝐅𝐀𝐍💛🖤
@@ -31,8 +24,9 @@ GUYSSS I FIXED THE ATABOOK LINKKKK SIGNNNN ITTT YAYY
 ■□■□■□■□■
 </p>
 
+&nbsp;<div align="center">
 [Rentry](https://rentry.co/MyFedoraAndHisFedora) ✦ [pronouns.cc](https://pronouns.cc/@RADIANT_DAY)  ✦ [personal dni](https://rentry.co/q78ggnub) ✦ [Ata](https://zero-horizons.atabook.org/)
+</div>
 
 <p align="center">
-𝐑𝐞𝐚𝐝 𝐫𝐞𝐧𝐭𝐫𝐲(𝐬) 𝐛𝐲𝐢
-</p>
+𝐑𝐞𝐚𝐝 𝐫𝐞𝐧𝐭𝐫
