@@ -12,6 +12,8 @@
 
 ![17614008044128947482049487110286](https://github.com/user-attachments/assets/e42851be-d415-4390-892c-e9926d432747)
 
+.・゜-: ✧ :-　MY [GANG](https://rentry.co/comfkitties) （｡>‿‿<｡ ）
+
  </div>
  
 <p align="center">
@@ -60,6 +62,7 @@ ________
 
 <p align="center">
 𓏵
+ 
 </p>
 
 &nbsp;<div align="center">
