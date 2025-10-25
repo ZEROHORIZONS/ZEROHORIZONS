@@ -1,3 +1,6 @@
+<img width="1280" height="128" alt="17614012264308391649848983025334" src="https://github.com/user-attachments/assets/fb9315db-80e9-4c89-956b-b43863e459fb" />
+
+
 &nbsp;<div align="center">
 ![](https://komarev.com/ghpvc/?username=ZEROHORIZONS&color=grey&label=Welcome+to+the+Cleaners!)
 </div>
