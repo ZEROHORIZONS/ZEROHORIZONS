@@ -1,5 +1,5 @@
 &nbsp;<div align="center">
-![](https://komarev.com/ghpvc/?username=ZEROHORIZONS&color=grey&label=IN+DEBT)
+![](https://komarev.com/ghpvc/?username=ZEROHORIZONS&color=grey&label=Welcome+to+the+Cleaners!)
 </div>
 
 <p align="center">
@@ -36,6 +36,10 @@ ________
 <p align="center">
 𐔌՞ ܸ.ˬ.ܸ՞𐦯 . ᡕᠵデᡁ᠊╾━ . (⸝⸝> ᴗ•⸝⸝)
 </p>
+
+&nbsp;<div align="center">
+[![Untitled1337-20251024234527.png](https://i.postimg.cc/QMX3frQ1/Untitled1337-20251024234527.png)](https://postimg.cc/YvyZSZyC)
+</div>
 
 &nbsp;<div align="center">
 [NEW RENTRY](https://rentry.co/contracteeshusband) ✦ [Pronouns.CC](https://pronouns.cc/@RADIANT_DAY)  ✦
