@@ -56,7 +56,7 @@ ________
 </div>
 
 &nbsp;<div align="center">
-(｡•̀ᴗ-) . ₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾
+<ins>(｡•̀ᴗ-) . ₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾</ins>
 
 ✰ [Roblox.ACC](https://www.roblox.com/users/7809493979/profile) 
 ✯ [NEW RENTRY](https://rentry.co/contracteeshusband) ✩ [Pronouns.CC](https://pronouns.cc/@RADIANT_DAY)  ✮
