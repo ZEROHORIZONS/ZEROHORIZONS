@@ -14,7 +14,9 @@
 
 MY [GANG](https://rentry.co/comfkitties) (∩•ω•∩) 
 
-↑↑ <ins>#COMFKITTIES</ins> ↑↑
+<ins>re</ins>ntry credit: [@nnerc](https://github.com/nnerc)
+
+↑↑ <ins>#COMF</ins>KITTIES ↑↑
 
  </div>
  
