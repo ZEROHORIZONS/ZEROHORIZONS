@@ -3,7 +3,7 @@
 </div>
 
 <p align="center">
-𓏵
+. 𓏵 . 
  <p>
  
 <p align="center">
@@ -11,7 +11,7 @@
 </p>
   
  <p align="center">
-#NO.𝟏 𝐂𝐎𝐍𝐓𝐑𝐀𝐂𝐓𝐄𝐄 𝐅𝐎𝐑𝐒𝐀𝐊𝐄𝐍 𝐅𝐀𝐍
+<ins>#NO. 1 𝐂𝐎𝐍𝐓𝐑𝐀𝐂𝐓𝐄𝐄 𝐅𝐀𝐍</ins>
 </p>
 
 <p align="center">
@@ -42,8 +42,13 @@ ________
 </div>
 
 &nbsp;<div align="center">
-[NEW RENTRY](https://rentry.co/contracteeshusband) ✦ [Pronouns.CC](https://pronouns.cc/@RADIANT_DAY)  ✦
-</div>
+✯ [NEW RENTRY](https://rentry.co/contracteeshusband) ✩ [Pronouns.CC](https://pronouns.cc/@RADIANT_DAY)  ✮
+
+</div> 
+
+<p align="center">
+(PONYTOWN RENTRY IS A WIP) 
+</p>
 
 <p align="center">
 𓏵
