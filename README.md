@@ -12,7 +12,9 @@
 
 ![17614008044128947482049487110286](https://github.com/user-attachments/assets/e42851be-d415-4390-892c-e9926d432747)
 
-.・゜-: ✧ :-　MY [GANG](https://rentry.co/comfkitties) （｡>‿‿<｡ ）
+MY [GANG](https://rentry.co/comfkitties) (∩•ω•∩) 
+
+↑↑ <ins>#COMFKITTIES</ins> ↑↑
 
  </div>
  
@@ -36,7 +38,7 @@ ________
   
 
 <p align="center">
-"𝐊𝐞𝐞𝐩 𝐚 𝐜𝐨𝐨𝐥 𝐡𝐞𝐚𝐝!"
+"<ins>𝐊𝐞𝐞𝐩 𝐚 𝐜𝐨𝐨𝐥 𝐡𝐞𝐚𝐝!</ins>"
 </p>
 
 &nbsp;<div align="center">
@@ -52,18 +54,22 @@ ________
 </div>
 
 &nbsp;<div align="center">
+(｡•̀ᴗ-) . ₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾
+
+✰ [Roblox.ACC](https://www.roblox.com/users/7809493979/profile) 
 ✯ [NEW RENTRY](https://rentry.co/contracteeshusband) ✩ [Pronouns.CC](https://pronouns.cc/@RADIANT_DAY)  ✮
 
 </div> 
 
-<p align="center">
-(PONYTOWN RENTRY IS A WIP) 
-</p>
+&nbsp;<div align="center">
+*(PONYTOWN RENTRY IS A WIP)*
+</div>
 
-<p align="center">
+&nbsp;<div align="center">
 𓏵
- 
-</p>
+
+# 𓆝 𓆟 𓆞
+</div>
 
 &nbsp;<div align="center">
 ![17613993335058658940080497873514](https://github.com/user-attachments/assets/110ee99e-d218-4647-a6be-580bacb6d6f6) ![17613994017705358803551504245881](https://github.com/user-attachments/assets/1e4ff3fc-8bde-446c-ad2b-98c7a9ad057a)
