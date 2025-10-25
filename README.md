@@ -64,7 +64,7 @@ ________
 </div> 
 
 &nbsp;<div align="center">
-*(PONYTOWN RENTRY IS A WIP)*
+<ins>*(PONYTOWN RENTRY IS A WIP)*</ins>
 </div>
 
 &nbsp;<div align="center">
