@@ -44,7 +44,7 @@ ________
 </p>
 
 &nbsp;<div align="center">
-[𝐀𝐓𝐀𝐁𝐎𝐎𝐊](https://zero-horizons.atabook.org/)
+[𝐀𝐓𝐀𝐁𝐎𝐎𝐊](https://zero-horizons.atabook.org/) ✬ [NEW 𝐒𝐓𝐑𝐀𝐖𝐏𝐀𝐆𝐄](https://zerohorizons.straw.page) 
 </div>
 
 <p align="center">
