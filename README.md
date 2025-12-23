@@ -1,22 +1,18 @@
+![](https://i.postimg.cc/50PSQkFW/Untitled1373-20251222211508.png) 
+
 <img width="1280" height="128" alt="17614012264308391649848983025334" src="https://github.com/user-attachments/assets/fb9315db-80e9-4c89-956b-b43863e459fb" />
 
 
 &nbsp;<div align="center">
-![](https://komarev.com/ghpvc/?username=ZEROHORIZONS&color=grey&label=Welcome+to+the+Cleaners!)
+![](https://komarev.com/ghpvc/?username=ZEROHORIZONS&color=red&label=Let's+Play+a+Game..)
 </div>
 
 &nbsp;<div align="center">
 . 𓏵 . 
  
-<ins>*Chance*</ins> *, Soldier, or Daniel*
+<ins>*Soldier*</ins> *or ITRAPPED,*
 
-![17614008044128947482049487110286](https://github.com/user-attachments/assets/e42851be-d415-4390-892c-e9926d432747)
-
-MY [GANG](https://rentry.co/comfkitties) (∩•ω•∩) 
-
-<ins>re</ins>ntry credit: [@nnerc](https://github.com/nnerc)
-
-↑↑ <ins>#COMF</ins>KITTIES ↑↑
+![[17614008044128947482049487110286](https://github.com/user-attachments/assets/e42851be-d415-4390-892c-e9926d432747)](https://i.postimg.cc/j5dHnFJQ/Untitled1374-20251222225238.png)
 
  </div>
  
@@ -31,12 +27,6 @@ MY [GANG](https://rentry.co/comfkitties) (∩•ω•∩)
 <p align="center">
 ________
 </p>
-
-[![IMG-1913.png](https://i.postimg.cc/X7tZFKJ6/IMG-1913.png)](https://postimg.cc/7fMYr20K)
-
- &nbsp;<div align="center">
-[![IMG-1907.png](https://i.postimg.cc/KjZP6PLR/IMG-1907.png)](https://postimg.cc/VrV0MbK8)
-</div>
   
 
 <p align="center">
